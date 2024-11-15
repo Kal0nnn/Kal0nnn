@@ -1,3 +1,3 @@
 - Hello ! ^^
 - CS Student 
-- Newbie but trying my best tbh
+- 🌱currently learning
